@@ -1,0 +1,2 @@
+# MEMEcoin
+LOL kkkkkk
